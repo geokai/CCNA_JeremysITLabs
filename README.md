@@ -1,1 +1,1 @@
-### Jeremys IT Labs, full CCNA online course
+### Jeremy's IT Labs, full CCNA online course
